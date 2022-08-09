@@ -1,5 +1,5 @@
 # Halo semua! 
-Perkenalkan nama saya **Gilang Ramadhan**.\
+Perkenalkan nama saya **Rama Noor Rizki**.\
 Saya seorang **Mahasiswa** di [Universitas Lambung Mangkurat](https://ulm.ac.id/id/).\
 Saya adalah mahasiswa di prodi **Ilmu Komputer**.\
 Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Linkedin](https://www.linkedin.com/in/rama-noor-rizki-404531232/)ku ya.     
